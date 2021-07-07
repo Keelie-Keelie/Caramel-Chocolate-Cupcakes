@@ -10,3 +10,14 @@ Fill the muffin tin, each space being filled about halfway.
 Bake for about 20 minutes in the oven.
 
 After they're done baking, frost them with chocolate icing and top with caramel drizzle and a hard caramel candy.
+
+
+
+
+
+
+
+
+Citation:
+
+“Chocolate Cupcakes with Vanilla Frosting.” Sally's Baking Addiction, Trina, 14 Apr. 2021, sallysbakingaddiction.com/classic-chocolate-cupcakes-with-vanilla-frosting/. 
